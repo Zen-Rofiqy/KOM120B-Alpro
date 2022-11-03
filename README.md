@@ -1,1 +1,1 @@
-# -KOM120B--Alpro
+# KOM120B-Alpro
